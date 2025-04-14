@@ -31,6 +31,8 @@ hi  lynx btw
 
 [# Elliot 🍕 Mafioso kisser] whispers: There's a hot man behind me....!!!!
 
+[My brothers a donut] if I pull ur ears, do they unclip and hook up like controllers?
+
 16:02[Freaky Mark] u showed me ur b hole so noe its my turn to sho u my a hole😝
 
 [;; ILY JEN, YOU CUT IT OUT.] IM CLAPPING THSOE CHEEKS TONIGHT HO
